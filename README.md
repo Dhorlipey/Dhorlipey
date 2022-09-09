@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1BaOFWikwgRJcluyzfR-Fw0WjC_yFDrLrKDIFMG0c2M0/edit?usp=sharing](https://docs.google.com/document/d/1BaOFWikwgRJcluyzfR-Fw0WjC_yFDrLrKDIFMG0c2M0/edit?usp=sharing)
 
-- ⚡ Fun fact **I think I am funny and would love to try being a comedian**
+- ⚡ Fun fact **I think I am funny and would love to try comedy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
