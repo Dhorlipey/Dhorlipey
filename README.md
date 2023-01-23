@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Dolapo Onifade</h1>
 
 
-- 🌱 I’m currently learning **Typescript, GSAP, NextJS**
+- 🌱 I’m currently learning **GSAP**
 
 - 👯 I’m looking to collaborate on **open source projects and enthusiastic about learning new technologies**
 
